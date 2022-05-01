@@ -1,2 +1,2 @@
-Dhiraj Kumawat
-rishab luttra 320@gmail.com
+Dhiraj Kumawat, dhirajkumawat320@gmail.com
+
