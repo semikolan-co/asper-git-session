@@ -1,3 +1,4 @@
+Vinayak Malviya,vinayakmalviya21@gmail.com
 Akshat Sharma,akshatsharmavds@gmail.com
 Vishal Gorana , vishalgorana514@gmail.com
 Ayush Kavariya, dhakad.ayush98@gmail.com
