@@ -1,4 +1,13 @@
 Dhaval Shrivastava, dhavalshrivastava@gmail.com
+Vaishnavi Thakur, vaishnavit005@gmailcom
+charvi bhargava, bhargavacharviiii@gmail.com
+Sejal Gupta, sejal.gupta2003@gmail.com
+Shivam Singh, shivanshsingh9358@gmail.com
+Ayush Kumar , ayushkr9976@gmail.com
+Kriti Singh , kritisingh21842@gmail.com
+Isha pawar, pawrani159@gmail.com
+Shubham Mishra, cy.shubham.mishra@gmail.com
+Aashi Agrawal, aashi300603@gmail.com
 Pragya Shrivastava, pragya15012004@gmail.com
 saumya keshariya, saumyasirmour10@gmail.com
 Chaitrali Kakde, kakdechaitrali16@gmail.com
