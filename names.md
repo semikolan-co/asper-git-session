@@ -1,4 +1,6 @@
 Kanupriya Rathod, kanupriyarathod1912@gmail.com
+Nabh Pandey , nabhakhileshpandey@gmail.com
+MO. SHAHID KHATRI, shahidkhatrixyz@gmail.com
 Nikita kotwal, nikitakotwal001@gmail.com
 Aditi Tiwari, aditi28tiwari@gmail.com
 Vandana Gyanchandani, vgyanchandani03@gmail.com
