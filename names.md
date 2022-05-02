@@ -1,3 +1,7 @@
+Vineet Singh Chauhan, vineetksc@gmail.com
+Shagun Chaturvedi, shagun2001ch@gmail.com
+Salil sharma, salilsharma562@gmail.com
+Mukti Markam, muktimarkam82575@gmail.com
 Dhaval Shrivastava, dhavalshrivastava@gmail.com
 Vaishnavi Thakur, vaishnavit005@gmailcom
 charvi bhargava, bhargavacharviiii@gmail.com
