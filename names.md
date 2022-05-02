@@ -1,3 +1,4 @@
+Vishal Gorana , vishalgorana514@gmail.com
 Ayush Kavariya, dhakad.ayush98@gmail.com
 Shruti Shroti , shrutishroti2@gmail.com
 sahil yadav, yadavsahil2723@gmail.com
