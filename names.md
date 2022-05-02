@@ -1,3 +1,4 @@
+arjita singh kushwaha, arjitakushwah@gmail.com
 AKHILESHWER MUNSHI, akhileshwermunshi.work@gmail.com
 Ssara Gupta, 0212ssara@gmail.com
 Manish Singh, manishsingh13275@gmail.com
