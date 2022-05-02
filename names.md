@@ -1,3 +1,4 @@
+Pragya Shrivastava, pragya15012004@gmail.com
 saumya keshariya, saumyasirmour10@gmail.com
 Chaitrali Kakde, kakdechaitrali16@gmail.com
 Jiya Patidar, jiyapatidarkasrawad@gmail.com
