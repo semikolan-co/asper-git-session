@@ -1,3 +1,4 @@
+Shruti Shroti , shrutishroti2@gmail.com
 sahil yadav, yadavsahil2723@gmail.com
 Nikhil Bhartiya nbhartiya16@gmail.com
 Sudhanshu Mishra, sudhanshu250403@gmail.com
