@@ -1,3 +1,4 @@
+Nikita kotwal, nikitakotwal001@gmail.com
 Aditi Tiwari, aditi28tiwari@gmail.com
 Vandana Gyanchandani, vgyanchandani03@gmail.com
 Vinayak Malviya,vinayakmalviya21@gmail.com
