@@ -1,3 +1,4 @@
+Mahek Kashyap, mahekkashyap22@gmail.com
 Palak Raghuwanshi, Palakraghuwanshi22@gmail.com
 Jiya Patidar, jiyapatidarkasrawad@gmail.com
 Kanupriya Rathod, kanupriyarathod1912@gmail.com
