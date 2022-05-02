@@ -1,3 +1,4 @@
+Vaishnavi Thakur, vaishnavit005@gmailcom
 charvi bhargava, bhargavacharviiii@gmail.com
 Sejal Gupta, sejal.gupta2003@gmail.com
 Shivam Singh, shivanshsingh9358@gmail.com
