@@ -1,3 +1,4 @@
+Sejal Gupta, sejal.gupta2003@gmail.com
 Shivam Singh, shivanshsingh9358@gmail.com
 Ayush Kumar , ayushkr9976@gmail.com
 Kriti Singh , kritisingh21842@gmail.com
