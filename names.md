@@ -1,3 +1,4 @@
+Isha pawar, pawrani159@gmail.com
 Shubham Mishra, cy.shubham.mishra@gmail.com
 Aashi Agrawal, aashi300603@gmail.com
 Pragya Shrivastava, pragya15012004@gmail.com
