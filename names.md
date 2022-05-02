@@ -1,3 +1,4 @@
+Ayush Kumar , ayushkr9976@gmail.com
 Kriti Singh , kritisingh21842@gmail.com
 Isha pawar, pawrani159@gmail.com
 Shubham Mishra, cy.shubham.mishra@gmail.com
