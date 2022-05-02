@@ -1,3 +1,4 @@
+Shivansh Gupta, shivanshkush254@gmail.com
 Anunay Sharma, anunaysharma12@gmail.com
 Eti Bhawsar, etibhawsar29@gmail.com
 Dhiraj Kumawat, dhirajkumawat320@gmail.com
